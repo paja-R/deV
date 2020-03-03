@@ -1,4 +1,4 @@
-This font was designed and published by pajaR_19
+deV font was designed and published by pajaR_19
 on 20 08 2019
 
 LICENCE
